@@ -9,4 +9,4 @@ but until then,
 just please credit me using the github link and my name.
 
 Thanks,
--KuriousMiles10
+-Genuine Somewhat
